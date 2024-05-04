@@ -1,1 +1,1 @@
-![FLUENT Otter University](https://cdn.discordapp.com/attachments/839367089801527306/969659815725002793/otter_university.png)
+![FLUENT Otter University](https://github.com/OtterUniversity/.github/assets/68407783/7312e8f3-61dc-4189-92a8-606e5250abbb)
